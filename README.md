@@ -1,0 +1,2 @@
+# Ghana
+West African Country
